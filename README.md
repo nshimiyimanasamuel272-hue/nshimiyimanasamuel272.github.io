@@ -1,1 +1,0 @@
-# nshimiyimanasamuel272.github.io
